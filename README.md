@@ -16,7 +16,7 @@ I help Kannur businesses rank on Google Maps and dominate local search results. 
 
 🌐 **Website:** [https://thenihalmajeed.com](https://thenihalmajeed.com)
 
-📧 **Email:** [your-email@gmail.com](mailto:your-email@gmail.com)
+📧 **Email:** nihalmarketer4@gmail.com
 
 ## Location
 Kannur, Kerala, India (Malabar Region)
